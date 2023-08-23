@@ -1,0 +1,1 @@
+# NotesbyPalakMamfor24JulyBatch
